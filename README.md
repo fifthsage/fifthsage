@@ -2,7 +2,7 @@
 
 # 🇰🇷 Ohsung Cho (Kyle)
 
-> Web developer -> now Web Engineer, to be Product Owner
+> Web developer -> Web Engineer, to be Product Owner
 
 👨‍💻 Caredoc CTO
 
