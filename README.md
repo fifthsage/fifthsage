@@ -4,10 +4,17 @@
 
 > Web developer -> Web Engineer, to be Product Owner
 
+
+<br />
+
 👨‍💻 Caredoc CTO
 
 🛠 Anything what i need
 
 👀 Growth Hacking, Data Driven Design, Product Managing
+
+<br />
+
+
 
 I love 🏌️‍♂️🎾🥃🍷
