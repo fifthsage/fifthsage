@@ -7,6 +7,7 @@
 👨‍💻 Caredoc CTO
 
 🛠 Anything what i need
+
 👀 Growth Hacking, Data Driven Design, Product Managing
 
 I love 🏌️‍♂️🎾🥃🍷
