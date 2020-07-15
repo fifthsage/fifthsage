@@ -13,6 +13,8 @@
 
 👀 Growth Hacking, Data Driven Design, Product Managing
 
+🖋 https://brunch.co.kr/@fifthsage
+
 <br />
 
 
