@@ -2,21 +2,15 @@
 
 # 🇰🇷 Ohsung Cho (Kyle)
 
-> Web developer -> Web Engineer, to be Product Owner
+> Adventurer 👨‍🚀
 
 
 <br />
 
-👨‍💻 Caredoc CTO
-
 🛠 Anything what i need
-
-👀 Growth Hacking, Data Driven Design, Product Managing
 
 🖋 https://brunch.co.kr/@fifthsage
 
 <br />
-
-
 
 I love 🏌️‍♂️🎾🥃🍷
